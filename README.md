@@ -10,7 +10,7 @@ Yet I submitted, but I didn't get any feedback or response after I submitted
 
 Another company told me to build an authentication page that takes a phone number and verifies with OTP. I did, but didn't hear anything back.
 
-If you're looking for an intern, and you're not just acting when it comes to finding a intern, then here is my whatsapp number so we can communicate about your assignment
+If you're looking for an intern, and you're not just acting when it comes to finding a intern, then here can we have a Google meet to talk about the assignment you've given or you can Whatsapp me
 
 I'm really looking for an internship because this is my last year and really want to get an working experience
 
